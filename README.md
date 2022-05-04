@@ -9,5 +9,8 @@ The little red bean lives on the side of the road.   Everyday, the people walkin
   >> I am so glad there are many people to take me on a walk.
 
      Says Redy.
-     
+
+yeah *Redy* was very positive, he was the coolest bean around and everyone likes him. he feel happy when he  pics of him and his friends on social medias
+
+![img](pexels-jessica-lewis-creative-699373%20(1).jpg)
 
