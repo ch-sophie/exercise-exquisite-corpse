@@ -14,3 +14,11 @@ yeah *Redy* was very positive, he was the coolest bean around and everyone likes
 
 ![img](pexels-jessica-lewis-creative-699373%20(1).jpg)
 
+ One day small boy **krish** came to the village of _Redbeans_ for the vacation.He loves the plantes and he goes for walking everyday with his grandmother.
+ He saw the Redbeans and everyday he pour water to the plant
+ > I am so happy that krish love me and take care of me.
+ >> we both become Best Friend.
+     Says Redy.
+ ![krish](https://cdn.w600.comps.canstockphoto.com/little-boy-smiles-while-planting-bean-stock-images_csp3665075.jpg)
+
+
