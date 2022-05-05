@@ -18,7 +18,8 @@ yeah *Redy* was very positive, he was the coolest bean around and everyone likes
  He saw the Redbeans and everyday he pour water to the plant
  > I am so happy that krish love me and take care of me.
  >> we both become Best Friend.
-     Says Redy.
+    >> Says Redy.
+
  ![krish](https://cdn.w600.comps.canstockphoto.com/little-boy-smiles-while-planting-bean-stock-images_csp3665075.jpg)
 
 
